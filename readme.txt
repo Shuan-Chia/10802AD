@@ -1,2 +1,1 @@
-My name is Ted.
-I am at Dong Hwa University.
+臺灣三 蔡尚嘉 410611272
